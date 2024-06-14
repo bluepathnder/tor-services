@@ -18,7 +18,7 @@ Embark on a voyage through the shadows with Verified Onion Links 2024, your guid
 
 ## Table of Contents
 
-- [Top 10 Viral Fresh Onion Links 2024](#top-10-viral-fresh-onion-links-2024)
+- [Top 10 Viral Fresh Onion Links 2024](#top-10-viral-fresh-Top Services)
 - [The Hidden Wiki - Your Starting Point](#the-hidden-wiki---your-starting-point)
 - [Tor Project - Protecting Your Privacy](#tor-project---protecting-your-privacy)
 - [Marketplaces - Where Goods Meet Demand](#marketplaces---where-goods-meet-demand)
@@ -42,60 +42,60 @@ Welcome to the crème de la crème of clandestine connectivity: the Top 10 Viral
 
 - [TheHiddenWiki](http://zqktlwiuavvvqqt4ybvgvi7tyo4hjl5xgfuvpdf6otjiycgwqbym2qad.onion/wiki/index.php/Main_Page) - `http://zqktlwiuavvvqqt4ybvgvi7tyo4hjl5xgfuvpdf6otjiycgwqbym2qad.onion/wiki/index.php/Main_Page`
 
-<a href="http://zqktlwiuavvvqqt4ybvgvi7tyo4hjl5xgfuvpdf6otjiycgwqbym2qad.onion/wiki/index.php/Main_Page"><img src="https://github.com/arunatel/Onion-Links/blob/main/Onion-Links-2024/the%20hidden%20wiki.png"><a>
+<a href="http://zqktlwiuavvvqqt4ybvgvi7tyo4hjl5xgfuvpdf6otjiycgwqbym2qad.onion/wiki/index.php/Main_Page"><img src="https://github.com/bluepathnder/tor-services/blob/main/Top Services/the%20hidden%20wiki.png"><a>
 
 ### 02 OnionLinks
 
 - [OnionLinks](http://jaz45aabn5vkemy4jkg4mi4syheisqn2wn2n4fsuitpccdackjwxplad.onion) - `http://jaz45aabn5vkemy4jkg4mi4syheisqn2wn2n4fsuitpccdackjwxplad.onion`
 
-<a href="http://jaz45aabn5vkemy4jkg4mi4syheisqn2wn2n4fsuitpccdackjwxplad.onion"><img src="https://github.com/arunatel/Onion-Links/blob/main/Onion-Links-2024/OnionLinks.png"><a>
+<a href="http://jaz45aabn5vkemy4jkg4mi4syheisqn2wn2n4fsuitpccdackjwxplad.onion"><img src="https://github.com/bluepathnder/tor-services/blob/main/Top Services/OnionLinks.png"><a>
 
 ### 03 Ahmia
 
 - [Ahmia](http://juhanurmihxlp77nkq76byazcldy2hlmovfu2epvl5ankdibsot4csyd.onion) - `http://juhanurmihxlp77nkq76byazcldy2hlmovfu2epvl5ankdibsot4csyd.onion`
 
-<a href="http://juhanurmihxlp77nkq76byazcldy2hlmovfu2epvl5ankdibsot4csyd.onion"><img src="https://github.com/arunatel/Onion-Links/blob/main/Onion-Links-2024/Ahmia.png"><a>
+<a href="http://juhanurmihxlp77nkq76byazcldy2hlmovfu2epvl5ankdibsot4csyd.onion"><img src="https://github.com/bluepathnder/tor-services/blob/main/Top Services/Ahmia.png"><a>
 
 ### 04 CashCow
 
 - [CashCow](http://hssza6r6fbui4x452ayv3dkeynvjlkzllezxf3aizxppmcfmz2mg7uad.onion) - `http://hssza6r6fbui4x452ayv3dkeynvjlkzllezxf3aizxppmcfmz2mg7uad.onion`
 
-<a href="http://hssza6r6fbui4x452ayv3dkeynvjlkzllezxf3aizxppmcfmz2mg7uad.onion"><img src="https://github.com/arunatel/Onion-Links/blob/main/Onion-Links-2024/Cash%20Cow.png"><a>
+<a href="http://hssza6r6fbui4x452ayv3dkeynvjlkzllezxf3aizxppmcfmz2mg7uad.onion"><img src="https://github.com/bluepathnder/tor-services/blob/main/Top Services/Cash%20Cow.png"><a>
 
 ### 05 CashMachine
 
 - [CashMachine](http://n3irlpzwkcmfochhuswpcrg35z7bzqtaoffqecomrx57n3rd5jc72byd.onion) - `http://n3irlpzwkcmfochhuswpcrg35z7bzqtaoffqecomrx57n3rd5jc72byd.onion`
 
-<a href="http://n3irlpzwkcmfochhuswpcrg35z7bzqtaoffqecomrx57n3rd5jc72byd.onion"><img src="https://github.com/arunatel/Onion-Links/blob/main/Onion-Links-2024/CashMachine.png"><a>
+<a href="http://n3irlpzwkcmfochhuswpcrg35z7bzqtaoffqecomrx57n3rd5jc72byd.onion"><img src="https://github.com/bluepathnder/tor-services/blob/main/Top Services/CashMachine.png"><a>
 
 ### 06 DuckDuckGo
 
 - [DuckDuckGo](http://duckduckgogg42xjoc72x3sjasowoarfbgcmvfimaftt6twagswzczad.onion) - `http://duckduckgogg42xjoc72x3sjasowoarfbgcmvfimaftt6twagswzczad.onion`
 
-<a href="http://duckduckgogg42xjoc72x3sjasowoarfbgcmvfimaftt6twagswzczad.onion"><img src="https://github.com/arunatel/Onion-Links/blob/main/Onion-Links-2024/DuckDuckGo.png"><a>
+<a href="http://duckduckgogg42xjoc72x3sjasowoarfbgcmvfimaftt6twagswzczad.onion"><img src="https://github.com/bluepathnder/tor-services/blob/main/Top Services/DuckDuckGo.png"><a>
 
 ### 07 Fish'n'Pal
 
 - [Fish'n'Pal](http://56dlutemceny6ncaxolpn6lety2cqfz5fd64nx4ohevj4a7ricixwzad.onion) - `http://56dlutemceny6ncaxolpn6lety2cqfz5fd64nx4ohevj4a7ricixwzad.onion`
 
-<a href="http://56dlutemceny6ncaxolpn6lety2cqfz5fd64nx4ohevj4a7ricixwzad.onion"><img src="https://github.com/arunatel/Onion-Links/blob/main/Onion-Links-2024/Fish'n'Pal.png"><a>
+<a href="http://56dlutemceny6ncaxolpn6lety2cqfz5fd64nx4ohevj4a7ricixwzad.onion"><img src="https://github.com/bluepathnder/tor-services/blob/main/Top Services/Fish'n'Pal.png"><a>
 
 ### 08 PremiumCards
 - [PremiumCards](http://hbl6udan73w7qbjdey6chsu5gq5ehrfqbb73jq726kj3khnev2yarlid.onion) - `http://hbl6udan73w7qbjdey6chsu5gq5ehrfqbb73jq726kj3khnev2yarlid.onion`
 
-<a href="http://hbl6udan73w7qbjdey6chsu5gq5ehrfqbb73jq726kj3khnev2yarlid.onion"><img src="https://github.com/arunatel/Onion-Links/blob/main/Onion-Links-2024/Premium%20cards.png"><a>
+<a href="http://hbl6udan73w7qbjdey6chsu5gq5ehrfqbb73jq726kj3khnev2yarlid.onion"><img src="https://github.com/bluepathnder/tor-services/blob/main/Top Services/Premium%20cards.png"><a>
 
 ### 09 TheGreenMachine
 
 - [PremiumCards](http://vw5vzi62xqhihghvonatid7imut2rkgiudl3xomj4jftlmanuwh4r2qd.onion) - `http://vw5vzi62xqhihghvonatid7imut2rkgiudl3xomj4jftlmanuwh4r2qd.onion`
 
-<a href="http://vw5vzi62xqhihghvonatid7imut2rkgiudl3xomj4jftlmanuwh4r2qd.onion"><img src="https://github.com/arunatel/Onion-Links/blob/main/Onion-Links-2024/The%20Green%20Machine.png"><a>
+<a href="http://vw5vzi62xqhihghvonatid7imut2rkgiudl3xomj4jftlmanuwh4r2qd.onion"><img src="https://github.com/bluepathnder/tor-services/blob/main/Top Services/The%20Green%20Machine.png"><a>
 
 ### 10 USJUD
 
 - [USJUD](http://usjud6uoc5gxmrfyuid4hm3e2slisucbwwnviiltyvdp5pma2xsr7aad.onion) - `http://usjud6uoc5gxmrfyuid4hm3e2slisucbwwnviiltyvdp5pma2xsr7aad.onion`
 
-<a href="http://usjud6uoc5gxmrfyuid4hm3e2slisucbwwnviiltyvdp5pma2xsr7aad.onion"><img src="https://github.com/arunatel/Onion-Links/blob/main/Onion-Links-2024/USJUD.png"><a>
+<a href="http://usjud6uoc5gxmrfyuid4hm3e2slisucbwwnviiltyvdp5pma2xsr7aad.onion"><img src="https://github.com/bluepathnder/tor-services/blob/main/Top Services/USJUD.png"><a>
 
 ## The Hidden Wiki - Your Starting Point
 
@@ -120,7 +120,7 @@ Welcome to the crème de la crème of clandestine connectivity: the Top 10 Viral
 - [USJUD Counterfeits](http://usjud6uoc5gxmrfyuid4hm3e2slisucbwwnviiltyvdp5pma2xsr7aad.onion/) - All our bills are of 1:1 quality.
 - [Horizon Store](http://hrznstuh7fklpawxt5asormu5plwkqpnymnop4iptalt67ebpu5osiad.onion/) - We sell zero-risk prepaid cards for online & ATM.
 - [Onion Wallet](http://zwf5i7hiwmffq2bl7euedg6y5ydzze3ljiyrjmm7o42ve7ni56fm7qd.onion/) - Safe Tor-based wallet for your dark needs.
-- [Hidden Wallethttp://d46a7ehxj6d6f2cf4hi3b424uzywno24c7qtnvdvwsah5qpogewoeqid.onion/) - Store and transact your BTC coins from an anonymous wallet.
+- [Hiden Wallet(http://d46a7ehxj6d6f2cf4hi3b424uzywno24c7qtnvdvwsah5qpogewoeqid.onion/) - Store and transact your BTC coins from an anonymous wallet.
 - EasyCoin](http://vu3miq3vhxljfclehmvy7ezclvsb3vksmug5vuivbpw4zovyszbemvqd.onion/) - A great choice for privacy transactions.
 - [Virgin Bitcoins](http://ovai7wvp4yj6jl3wbzihypbq657vpape7lggrlah4pl34utwjrpetwid.onion/) - Buy freshly mined new virgin bitcoins.
 - [CardShop](http://f6wqhy6ii7metm45m4mg6yg76yytik5kxe6h7sestyvm6gnlcw3n4qad.onion/) - You will get a High-Quality known balance cc.
@@ -159,7 +159,7 @@ Welcome to the crème de la crème of clandestine connectivity: the Top 10 Viral
 - [Ableonion Chat](http://notbumpz34bgbz4yfdigxvd6vzwtxc3zpt5imukgl6bvip2nikdmdaad.onion/) - Chat platform for anonymous communication.
 - [MadIRC](http://wbi67emmdx6i6rcr6nnk3hco3nrvdc2juxrbvomvt6nze5afjz6pgtad.onion/) - Anonymous and secure IRC chat network.
 - [Facebook](http://facebookwkhpilnemxj7asaniu7vnjjbiltxjqhye3mhbshg7kx5tfyd.onion/) - Facebook on the dark web.
-- [Image Gallery](http://artistzubelolngubx6pmd6w2xacl3yj7jllxjdnrhh7assk7ioevjad.onion/) - Anonymously browse and share Onion-Links-2024 on the dark web.
+- [Image Gallery](http://artistzubelolngubx6pmd6w2xacl3yj7jllxjdnrhh7assk7ioevjad.onion/) - Anonymously browse and share Top Services on the dark web.
 
 ## Hosting Services
 
@@ -185,8 +185,8 @@ Welcome to the crème de la crème of clandestine connectivity: the Top 10 Viral
 - [Dread](http://dreadytofatroptsdj6io7l3xptbet6onoyno2yv7jicoxknyazubrad.onion/) - Forum for discussing dark web markets and related topics.
 - [SuprBay](http://suprbaydvdcaynfo4dgdzgxb4zuso7rftlil5yg5kqjefnw4wq4ulcad.onion/) - Forum for discussions related to The Pirate Bay and other file-sharing topics.
 - [EndChan](http://enxx3byspwsdo446jujc52ucy2pf5urdbhqw3kbsfhlfjwmbpj5smdad.onion/) - Imageboard community with a variety of discussion boards.
-- [XSS.is](http://xssforumv3isucukbxhdhwz67hoa5e2voakcfuieq4ch257vsburuid.onion/) - Forum for web security and exploits discussion.
-- [NwYork Times](http://ej3kv4ebuugcmuwxctx5ic7zxh73rnxt42soi3tdneu2c2em55thufqd.onion/) - Official website for The New York Times on the dark web. [DarkNetLive](http://darknetlidvrsli6iso7my54rjayjursyw637aypb6qambkoepmyq2yd.onion/) - News and information related to dark web markets and cybercrime.
+- [XSS.is](http://xssforumv3isucukbxhdhwz67hoa5e2voakcfuieq4ch257vsburuid.onion/) - Forum for web security and exploits discussion
+- [Nw York Times](http://ej3kv4ebuugcmuwxctx5ic7zxh73rnxt42soi3tdneu2c2em55thufqd.onion/) - Official website for The New York Times on the dark web. [DarkNetLive](http://darknetlidvrsli6iso7my54rjayjursyw637aypb6qambkoepmyq2yd.onion/) - News and information related to dark web markets and cybercrime.
 - [Reddit](http://reddittorjg6rue252oqsxryoxengawnmo46qy4kyii5wtqnwfj4ooad.onion/) - The official Reddit site accessible on the dark web.
 - [Exploit.in](http://exploitivzcm5dawzhe6c32bbylyggbjvh5dyvsvb5lkuz5ptmunkmqd.onion/) - Forum for discussing exploits and vulnerabilities.
 - [NZ Darknet Market Forum](http://nzdnmfcf2z5pd3vwfyfy3jhwoubv6qnumdglspqhurqnuvr52khatdad.onion/) - Forum for discussions related to dark web markets in New Zealand.
