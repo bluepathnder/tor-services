@@ -1,6 +1,6 @@
 # tor-services
 
-# Welcome to Onion Links 2024
+# Welcome to Tor Services 2024
 
 <img src="https://github.com/bluepathnder/tor-services/blob/main/link%20Image.png">
 
